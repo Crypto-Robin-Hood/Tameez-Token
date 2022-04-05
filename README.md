@@ -1,1 +1,1 @@
-# Tameez-Token
+# Tameez Token
